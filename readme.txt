@@ -1,1 +1,3 @@
-Readme file
+Thirteen --
+
+How to play:
